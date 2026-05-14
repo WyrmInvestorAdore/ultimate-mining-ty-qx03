@@ -1,4 +1,4 @@
-#  
+#  Experience escape waves for lucky blocks like never before with instant Scripts for escape waves for lucky blocks, the #1 Script. Includes silent aim
 
 
 
